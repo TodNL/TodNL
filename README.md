@@ -1,3 +1,1 @@
-- Hi, I’m @TodNL
-- I started learning python recently
 - @Tod#1241 on discord if you need me!
